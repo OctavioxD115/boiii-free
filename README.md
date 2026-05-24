@@ -1,3 +1,2 @@
-# BOIII ☄️
+# PPIII 😺
 
-Join https://discord.gg/ezz 😎
